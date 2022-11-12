@@ -1,1 +1,1 @@
-# OldSchool-RP---
+# OldSchool-RP-ქართული სერვერი
